@@ -1,1 +1,1 @@
-# q6ai.github.io
+# q6ai.com
